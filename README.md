@@ -1,1 +1,3 @@
 # why
+
+why me?? why me??? play starcraft???  serious business you know.  my first dog escaped the yard after i spent a whole overnight playing sc2 pirated version.  you know?? this makes things hard...  like what we are doing right now.  playing starcraft.  my dog died for starcraft.  that was sharkey's asshole first time with me.  you know??? oddly enough the surrey model has a very large pet option we just never use it lol.    oh wait, we did. how'd i figure that out???  i can see the wires now bro.  lol..  its a secondary effect you need to maintain is the word.  its even easier to described but it got lost in translatioin.  for someone smart like you you should be able to finish my sentences cause i can't cause your retarded ass fried my head.
