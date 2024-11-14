@@ -1,3 +1,9 @@
 # why
 
 why me?? why me??? play starcraft???  serious business you know.  my first dog escaped the yard after i spent a whole overnight playing sc2 pirated version.  you know?? this makes things hard...  like what we are doing right now.  playing starcraft.  my dog died for starcraft.  that was sharkey's asshole first time with me.  you know??? oddly enough the surrey model has a very large pet option we just never use it lol.    oh wait, we did. how'd i figure that out???  i can see the wires now bro.  lol..  its a secondary effect you need to maintain is the word.  its even easier to described but it got lost in translatioin.  for someone smart like you you should be able to finish my sentences cause i can't cause your retarded ass fried my head.
+
+lost in translation also means lost in meaning...  things had no conclusion so i said what was there in the first place.
+
+and its the monster boost.  its quite instant i must say so myself.  i don't enjoy playing like this but sharkey puppeted me into bringing you here and making me come here.  its like a double double sword.  you know???  i have brain injury i dont think i can recover from.  the bolts are already loose i can understand dthe concept i just dont remember it lol.  perhaps communication was my calling and i never got to do any of it...  which is the prime occurence of security... something like that.  i could not tell.  probably cause the way this society values certain things.  i'm personally mindblown waiters and waitresses can keep your orders correct all the time.  i do this shit with you 5 years i still think it bro.
+
+so i've only this form of employment...  what to do about it bro???  when the guy who owes you payment is like invisible???  i'm nowhere near a story of wealth..  i dont know bro. i dont know how to fix these things.  you screwed it up...
