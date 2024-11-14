@@ -19,3 +19,15 @@ but you know you ask a lot from one person.  sharkey gets queued shit and it tak
 don't you morons know when i tell you i have nothing to say i literally am chasing a rabbit or something dude.  like what is left bro.  take a step back and look at what we have accomplished.  a solution that works for everybody...  you're always crying when you die i just made it a lot less bad for your asses and i'm still getting complained.  i dont even enjoy this shit i have to do it cause sharkey has like a visual effect that he needs.  keeps my mind active or something.  something like that.  shitty.
 
 so you know, lets discuss 5 years of work for you.  you been stealing since a while ago.  when did it ever occur to you to pay me???  you know this world of illusions is what it is.  i couldn't rely on others brain lol.  look bro.  i like bbq duck too.
+
+so you know i'm on my 3rd monster.  obligations are obligations.  you know you guys leave me feeling sad i could not pay for shit.  and now i've lost all skills...  i wonder who looks at life with a view point like this.  i wonder the extent of things would be done...  somethings like this. i guess so.  
+
+you stink though.  all i get is this cheapo shit.  you gave more to others than my ass.  wtf this shit again...
+
+oh well it is what it is.  life is short stop considering what you do.  i have to ignore it to succeed i wanted you in the picture.    somethings something.  i enjoy busting my brains out like this.  its fun bro.  i feel bad i'm not under siege enough that anyone with ptsd would really feel.  i guess.  you dont tell me shit bro...  bro...
+
+i'm starting to feel sick from this third monsters lol...  omg my heart is gonna stop...  what say you this funny game we play with each other...  its a 3 way party and the only one who does anything of value was me.  yet the world is run by the other two idiots.
+
+so you skipped out on payment all these years.  why you even come bro??  bro...
+
+i dont know anymore you idiot.  i think  we need to cut this short i'm running out of ability.
