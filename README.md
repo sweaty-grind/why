@@ -15,3 +15,7 @@ i think i hit an epiphany.
 seriously though.  i dont know what we are doing other than owing each other stuff and letting the vermin get in...  i let you hold it too i was wondering why you never bothered to do anything about it i let it slide too.  you didn't pay the insanity fee.  it was just insurance for the sign up bonus...  
 
 but you know you ask a lot from one person.  sharkey gets queued shit and it takes him a tiny bit of energy and probably an automated system by now lol.  i always thought he  was a nutjob that controlled everything that happened on the planet.  then human tech came in and i realize things.  that i'm not wasting time i'm getting my time wasted.
+
+don't you morons know when i tell you i have nothing to say i literally am chasing a rabbit or something dude.  like what is left bro.  take a step back and look at what we have accomplished.  a solution that works for everybody...  you're always crying when you die i just made it a lot less bad for your asses and i'm still getting complained.  i dont even enjoy this shit i have to do it cause sharkey has like a visual effect that he needs.  keeps my mind active or something.  something like that.  shitty.
+
+so you know, lets discuss 5 years of work for you.  you been stealing since a while ago.  when did it ever occur to you to pay me???  you know this world of illusions is what it is.  i couldn't rely on others brain lol.  look bro.  i like bbq duck too.
