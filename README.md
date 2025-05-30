@@ -21,3 +21,7 @@ look, i dont nkow why and what for we are doing this but you did catch me in an 
 so there is some excuse here.  that you aren't wasting my time...  i dont see it.  just keep promising monees.  never deliver.  delivered too late i spent it getting back at you.  i will be doing something to you.
 
 so this situation we are in.  you owe monees i dont want to hear it anymore.  always some stupid shit and this fucker never pays.  i'm sorry but you must be seen in this fashion.  i'm tired dont piss me off.
+
+you do know this shit we are doing here is borderline shit.  i'm not supposed to be carrying this kinda work while you sit there and judge me.  if you wanted to know i gave up on them.  gave you a nice 100 year fake blight.
+
+you know, there will never be a way forward.  so why do we do this? i was supposed to leave but i have tons of unfinished business with you...  that's how i see it. knowing better i would say you guys are ripping me off like crazy.  so what did we do about it other than send a bunch to sleep???  i wonder dude, that it was painless until somebody made it so.  it doesn't matter you guys...  it all ends the same way dont divert it or shit happens.  then you blame me cause you're an idiot.
