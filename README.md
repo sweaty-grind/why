@@ -1,6 +1,11 @@
 # why
 
-hmmm.  what kind of world is this?? paralysis causes so much relief.  thats it bro...
+so you know... you think you are doing shit i wonder your cost analysis benefit measurement.  you know?  wasting my time.  what kind of stupid retard reality is this?  i wonder sometimes bro.  that i didn't fix things when i had the chance to do so.  so i come here all the damn time and you aren't getting it.  did you want to die or something???
 
-this ptsd is a little annoying to run without pay lol...  i dont know man.  you haven't paid diddly shit for so long...  i dont know anymore bro...  you ran outta time a while ago i think i will at least commit this need on your ass...  you ever pay for shit idiot?  i dont get it either.  property property my head is failing.  okay cool it money.  fuck this shit.  look at this clown act like this.  trash bag loser keeps killing the prophet.  i dont know bro. i miss my old head but i must wear this one and you make me look stupid i couldn't even get a review panel or some shit.  and you are pussying out and not liable for what happens but i don't give  a shit.  my life is not like yours...
+its called being stupid.   idiots and losers are stupid bro.  why did we spend so much time on this shit my head is gonna blow up.
 
+so yeah, i drink monsters right now and parsing my own head lol.  dude, this ain't my natural brain.  its like i'm wearing a cap with electrodes...  or some shit like that.
+
+so the us came by with their might and you did nothing again.  and i dont have my monees.  wtf for real??? no monees?? wtf???
+
+this is lame my friend.  i am too nice to you. i dont even care to do anything about anything.  lame you think your privilege would save your life lol...
