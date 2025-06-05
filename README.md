@@ -1,7 +1,5 @@
 # why
 
-shit man drank 3 monsters ultra again...
+guys...  why am i fighting you for a few hundred here and there???  you waste my time with your wavelength shit.  like sir, i dont enjoy this and will be lodging a complaint...
 
-so i should report in here sometimes.  if some dumbass would let go...  i dont know man. i drank 3 i'm obligated to come here and we go nowhere once again.  i'm tired of this stupid shit i can't make heads or tails or some shit.
-
-so what did you expect me to do with my time??  i dont get to go free till you are satisfied.  be it either way but please the effort is always there stop wasting...
+so yeah after that i dont know what else is supposed to be done here.  perhap sir, you are trying to keep it breathing but the failure was too high i wonder when you would give up at...  so i spend it keeping people alive and i send some to the dumpsters..  i dont know bro.  if the choice was this simple all the time lol...  oh well we go fix shit and we come back right???  so these things are consuming my days...  so i dohnt know bro. i'm clueless again..l. perhaps that you left it to shit is how the current deal is.
